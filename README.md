@@ -12,7 +12,7 @@ Developed by [ViRan Digital Labs](https://virandigitallabs.com)
 
 ## Contact
 
-Email: howsmartru.app@gmail.com
+Email: srinivassane.r@outlook.com
 
 ---
 
